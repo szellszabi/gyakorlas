@@ -1,2 +1,0 @@
-# gyakorlas
-asdasd
